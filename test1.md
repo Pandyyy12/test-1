@@ -6,5 +6,5 @@ This is a DUEL SERVER. NO FFA SERVER! ONLY 1v1
 trowables  toolbox buildings in normal play area are FORBIDDEN. Disrupting duels using those items is FFA.
 Respect all players and Staff !
 ![Seymour](https://i.postimg.cc/4yjrKmjh/discord-server.png)
-Have fun!create by Famigliano :)
-
+Have fun!
+created by Famigliano :)
