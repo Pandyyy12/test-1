@@ -1,8 +1,7 @@
 ![Seymour](https://i.postimg.cc/4yjrKmjh/discord-server.png)
 WELCOME TO THE ANO DUELS SERVER
-<a id="ANO DUELS DISCORD">
+<a id="ANO DUELS DISCORD">https://discord.gg/wJr54ws4Ap</> [RAW LINK: https://discord.gg/wJr54ws4Ap]
 Become a vip member!(more info on discord)
-https://discord.gg/wJr54ws4Ap</> 
 THE RULES:
 NO TOXICITY.NO FFA.NO CHEATS.NO TROLLS.NO RACISM.
 This is a DUEL SERVER. NO FFA SERVER! ONLY 1v1
