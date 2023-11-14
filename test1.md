@@ -1,5 +1,5 @@
-![Seymour](https://i.postimg.cc/4yjrKmjh/discord-server.png)
-WELCOME TO THE ANO DUELS SERVER
+![Seymour]()
+WELCOME TO THE BUISCUITS AND TEA DUELS SERVER
 <a id="ANO DUELS DISCORD">https://discord.gg/wJr54ws4Ap</> [RAW LINK: https://discord.gg/wJr54ws4Ap]
 Become a vip member!(more info on discord)
 THE RULES:
